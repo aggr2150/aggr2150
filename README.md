@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+
+https://github.com/aggr2150/aggr2150/assets/29420436/4b508764-e26a-4ff9-9730-3ed9b1a5e17b
+
+
 <!--
 **aggr2150/aggr2150** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
